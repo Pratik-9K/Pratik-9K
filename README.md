@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **pratikbawangade90@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1O4unxmcpeRlV7x0DxiNb8PyiFqQCj7GO/view?usp=drive_link](https://drive.google.com/file/d/1O4unxmcpeRlV7x0DxiNb8PyiFqQCj7GO/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
